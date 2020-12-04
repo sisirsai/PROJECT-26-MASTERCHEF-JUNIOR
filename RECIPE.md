@@ -10,7 +10,7 @@
       
       
       FRYING THE RAVA BONDA
-      ________________________________________________________________________________________________________________________________________________________________________
+    _________________________________________________________________________________________________________________________________________________________________________
      Heat the oil on high flame. Make sure that the oil is piping hot .Then reduce the flame to low-medium . Now take some of the batter in your hand and drop it into the oil 
      and fry till it get golden brown color. Serve it with coconut chutney .
      

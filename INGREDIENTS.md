@@ -1,4 +1,4 @@
-                                                                INGREDIENTS
+                                                               ***INGREDIENTS***
 1.  2 Cups Semolina (Sooji / Rava) 1 Cup - 250ml
 2.  1 Cup Sour Curd
 3.  3 Green Chili
